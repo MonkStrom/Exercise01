@@ -1,3 +1,7 @@
-Reading read me
+1. Barry Hu
 
-Stop reading
+2. TODO: Add photo
+
+3. 2017
+
+4. Undecided project
